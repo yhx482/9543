@@ -28,4 +28,4 @@
 📌 提示：请收藏本页面，防止错过最新地址更新。
 
 我们致力于打造一个最全、最快、最安全的日本AV免费资源站，让你轻松找到想看的每一部番号，不卡、不跳转、不打扰，是你值得信赖的第一选择。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yhx482/9543）</span>
